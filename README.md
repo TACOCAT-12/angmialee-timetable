@@ -1,1 +1,0 @@
-# angmialee-timetable
